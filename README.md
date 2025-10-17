@@ -10,7 +10,7 @@ As an ICT student majoring in Multimedia , my interests lie in web development, 
 1.Skills and interests
 -
 
-- This module has taught me valuable information and enhanced my understandin on what values and skills are as well how can values influence your career choices.
+- This module has taught me valuable information and enhanced my understandin on what values are and skills are as well how can values influence your career choices.
   
 Task: 
 - during my work readiness training training , i needed to complete an online skills and interests module to help me undersstand how values can influence my career choices.
@@ -23,22 +23,35 @@ Attached evidence:
 2.Business Communication
 -
 
+- This module helped me broaden my knowledge on how effective communication influences success in proffesional environments. It taught me the primary purpose of business communication, when to use formal language, recommended tone for email as well as what the  recommended etiquette for virtual backgrounds in video conferencing are.
+
+- Task:during my work readiness training training , i needed to complete an online business communication module.
+  
 Attached evidence :
 <img width="2160" height="1620" alt="IMG_0301" src="https://github.com/user-attachments/assets/94bd8587-f25f-4d68-96b4-b28465eba7b1" />
 
 3.Interview Skills
 -
+- This module helped me improve my understanding when it comes to preparing and perfoming effectively during interviews
+
+- Task :during my work readiness training training , i needed to complete an online interview skills interview.
 
 Attached evidence :
 <img width="2160" height="1620" alt="IMG_0303" src="https://github.com/user-attachments/assets/c9ab817f-1bdf-42ec-a2fc-352096b0d471" />
 
 4.Mock interview
 -
+-This module helped me learn how to deal with and tackle interviews in real life situations to prepare me for actual interview.
+
+- Task :during my work readiness training training , i needed to take and complete my own online Mock interview.
+
 Attached evidence :
 https://mycputac-my.sharepoint.com/:v:/g/personal/221746145_mycput_ac_za/ER0dVo1CHd1CohFk64H9XkUBzt0uwOWGw0qy6D13t1VX7Q?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=7ElGG5
 
 5.Proffesional Networking
 -
+
+- This module helped enhance my knowledge in terms of Networking in the proffessional industry in terms what the primary goal of networking i,  guiding me step by step into how you can start networking, common mistakes to avoid while networking.
 
 Attached evidence :
 <img width="2160" height="1620" alt="IMG_0302" src="https://github.com/user-attachments/assets/aac86576-f7ee-482b-ba00-31dd26dab2bd" />
