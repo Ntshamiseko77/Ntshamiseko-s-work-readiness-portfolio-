@@ -19,4 +19,9 @@ As an ICT student majoring in Multimedia , i am passionate about blending cre
 
 https://mycputac-my.sharepoint.com/:v:/g/personal/221746145_mycput_ac_za/ER0dVo1CHd1CohFk64H9XkUBzt0uwOWGw0qy6D13t1VX7Q?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=7ElGG5
 
+4.Proffesional Networking
+
+<img width="2160" height="1620" alt="IMG_0302" src="https://github.com/user-attachments/assets/aac86576-f7ee-482b-ba00-31dd26dab2bd" />
+
+
 
