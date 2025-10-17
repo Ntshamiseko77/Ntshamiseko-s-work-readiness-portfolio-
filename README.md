@@ -35,7 +35,7 @@ Attached evidence :
 -
 Task :
 - during my work readiness training training , i needed to complete an online interview skills interview.
-- 
+  
 - This module helped me improve my understanding when it comes to preparing and perfoming effectively during interviews
 
 
@@ -68,7 +68,7 @@ Attached evidence :
 -
 Task:
 - during my work readiness training training , i needed to complete an online Workplace Ettique module
-- 
+  
 - This module understand how to deal with issues that could arise in the workplace by giving courses and quizzies on What should youdoif your receive a work email with a rude or offensive tone,How should you handle confidential information in the workplace,When is it acceptable to use your personal cell phone for non related calls and texting at your desk and If you need to leave work early for a personal reason what should you do.
 
 Attached evidence :
